@@ -1,2 +1,8 @@
-# Rich-VagosRP-WEB
-pagina web del servidor de gta roleplay Rich Vagos
+JOIN MY DISCORD FOR MORE STUFF!
+
+https://discord.com/invite/D5tRtaJn9g
+https://discord.com/invite/D5tRtaJn9g
+https://discord.com/invite/D5tRtaJn9g
+https://discord.com/invite/D5tRtaJn9g
+https://discord.com/invite/D5tRtaJn9g
+
